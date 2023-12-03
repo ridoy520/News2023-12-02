@@ -183,3 +183,19 @@
 
 বাংলাদেশের ক্রিকেট দল শ্রীলঙ্কার বিপক্ষে প্রথম টেস্ট জিতল
 বাংলাদেশের ক্রিকেট দল শ্রীলঙ্কার বিপক্ষে প্রথম টেস্ট জিতল।
+
+Tricky Riddles for Smart Kids: 333 Difficult But Fun Riddles And Brain Teasers For Kids And Families (Age 8-12)
+by Jordan Moore  | Nov 30, 2022
+4.4 out of 5 stars 209
+Paperback
+$9.90 List: $11.77
+Delivery Thu, Dec 14
+Ships to Bangladesh
+More Buying Choices
+$5.99(10 used & new offers)
+Kindle
+$0.00 
+Free with Kindle Unlimited membership Join Now
+Available instantly
+https://amzn.to/47FwN3U
+Or $4.99 to buyhttps://amzn.to/47FwN3U
